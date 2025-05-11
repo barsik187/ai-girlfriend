@@ -1,4 +1,4 @@
-# **"Free AI Girlfriend Chatbot - Uncensored Anime Waifu Companion | Open Source NSFW/SFW Roleplay AI [No Login, No Paywall]"**
+# **Free AI Girlfriend Chatbot - Uncensored Anime Waifu Companion | Open Source NSFW/SFW Roleplay AI [No Login, No Paywall]**
 
 **Discover your dream AI girlfriend or boyfriend companion with our free, open-source AI chatbot. Enjoy uncensored SFW/NSFW anime waifu roleplay, adult AI interactions, no filters, no subscriptions, no login required. Fully customizable, open-source AI girlfriend app – perfect for AI lovers!**
 
